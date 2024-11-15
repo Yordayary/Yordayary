@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Yordayary
 - 👀 I’m interested in Learn about predictive analysi, Blockchain and data scientist
 - 🌱 I’m currently learning how to program and analyze data with different tools
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on well I'm Currently learning
+- 📫 How to reach me by ig yordayary
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love Pizza
 
